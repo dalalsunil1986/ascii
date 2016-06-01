@@ -9,3 +9,7 @@ ASCII stuff you might need to survive the internet
 > `ಠ_ಠ`
 
 > `( •_•)`
+
+### Symbols
+
+> ✰
